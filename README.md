@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @heavy2003
-- 👀 I’m interested in creatng impactful live changing websites 
+- 👀 I’m interested in creating impactful live changing websites 
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on buildimg website
 - 📫 How to reach me through my email [kamohelojames10@gmail.com}
